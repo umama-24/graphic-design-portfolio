@@ -20,6 +20,9 @@ https://canva.link/nlz6gwksm3q9y2p
 #### 2. faculty summit poster
 https://canva.link/dsulnayy0bt8mhf
 
+#### 1. Poster Design 3
+https://canva.link/kuizg7mhi8gn1vr
+
 
 
 ---
