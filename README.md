@@ -12,9 +12,14 @@ Welcome to my graphic design repository! Here I showcase various visual layouts,
 * **Previews:**
 
 #### 1. Research Poster Design
-
+https://canva.link/0al7xg4nuviatrt
 
 #### 2. Event Standee Design
+https://canva.link/nlz6gwksm3q9y2p
+
+#### 2. faculty summit poster
+https://canva.link/dsulnayy0bt8mhf
+
 
 
 ---
